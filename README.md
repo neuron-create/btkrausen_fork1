@@ -229,6 +229,13 @@ Read the blog and grab free resources at [krausen.io](https://krausen.io).
 </p>
 
 ---
+<h3 align="center">🚀 Ready to level up? <a href="https://btk.me/btk">Browse all courses →</a></h3>
+
+<h3 align="center">🚀 Ready to level up? <a href="https://btk.me/btk">Browse all courses →</a></h3>
+<h3 align="center">🚀 Ready to level up? <a href="https://btk.me/btk">Browse all courses →</a></h3>
+<h3 align="center">🚀 Ready to level up? <a href="https://btk.me/btk">Browse all courses →</a></h3>
+
+
 
 <h3 align="center">🚀 Ready to level up? <a href="https://btk.me/btk">Browse all courses →</a></h3>
 
